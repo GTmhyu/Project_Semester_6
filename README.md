@@ -1,2 +1,2 @@
 
-Project akhir semester 6
+Project akhir semester 6 
